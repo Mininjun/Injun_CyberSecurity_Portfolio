@@ -1,4 +1,4 @@
-For IIT Kanpur B.Cyber, a future cybersecurity engineer, not a student collecting certificates & results. Please focus on the Hands-on experience rather than the theoretical aspect.
+For IIT Kanpur B.Cyber, a future cybersecurity engineer, not a student collecting certificates & results. I am focused on the Hands-on experience rather than the theoretical aspect.
 # 🛡️ INJAMAM SEIKH
 
 ### AI Developer | Cybersecurity Enthusiast | International Ambassador
